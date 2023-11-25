@@ -1,0 +1,2 @@
+# A-yk
+Paýlaşmak gadagan
